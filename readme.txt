@@ -1,1 +1,3 @@
-Y Solomakha 
+Solomakha Y 
+KN-221g
+YA
